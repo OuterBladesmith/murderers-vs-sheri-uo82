@@ -1,4 +1,4 @@
-
+Experience murderers vs sheriffs 2 like never before with murderers vs sheriffs 2 Script stealth, the #1 Script. Includes auto-sell and one-hit kill
 
 
 
